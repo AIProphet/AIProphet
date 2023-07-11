@@ -1,4 +1,4 @@
-### **<div align="center">[Edward Lui](http://github.com/AIProphet), Talented Highly skilled Deep learning & Data Engineer</div>**  
+### **<div align="center">[Edward Lui](http://github.com/AIProphet), Highly skilled Deep learning & Data Engineer</div>**  
   
 
 <br/>  
